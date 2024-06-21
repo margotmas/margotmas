@@ -1,7 +1,7 @@
 # 💫 About Me:
 
 # Hi ! I'm Margot
-- 🔭 I’m currently working on my Portfolio<br>- 👩‍💻 I'm currently seeking a company for a professionalization contract (Bac +3/4)<br>- 👯 I’m looking to collaborate on various types of projects and innovations<br>- 📫 How to reach me: margot.voydis@gmail.com
+🔭 I’m currently working on my Portfolio<br>👩‍💻 I'm currently seeking a company for a professionalization contract (Bac +3/4)<br>👯 I’m looking to collaborate on various types of projects and innovations<br>📫 How to reach me: margot.voydis@gmail.com
 
 
 ## 🌐 Socials:
